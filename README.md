@@ -1,0 +1,1 @@
+# tizimga.kirish
